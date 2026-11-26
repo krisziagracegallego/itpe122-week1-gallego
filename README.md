@@ -1,4 +1,4 @@
-ITPE 122 - wEEK & Assignment 
+ITPE 122 - Week & Assignment 
 
 Name: Kriszia Grace G. Gallego
 Section: 2E
